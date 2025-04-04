@@ -1,6 +1,6 @@
 ![GIF](https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExeGZpZzM0Y3JuNjN0ODhiNmVzYXV6YWNzOWNyYTNjM2IwbjQ3dTAzOCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/dC6jsApEdpOQENtcXx/giphy.gif)
 
-ʟᴜꜰꜰʏ ʟᴜꜰꜰʏ ʟᴜꜰꜰʏ ʟᴜꜰꜰʏ ʟᴜꜰꜰʏ ʟᴜꜰꜰʏ :3 !!
+LUFFY LUFFY LUFFY LUFFY LUFFY LUFFY :3 !!
 
 ʏᴏᴜ ᴄᴀɴ ʀᴇᴀᴅ ɪꜰ ʏᴏᴜ'ᴅ ʟɪᴋᴇ !
 
