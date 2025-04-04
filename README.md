@@ -24,3 +24,6 @@ LUFFY LUFFY LUFFY LUFFY LUFFY LUFFY :3 !!
 
 𓆩 **ɪɴ-ɢᴀᴍᴇ ꜱᴛᴀᴛᴜꜱ ᴅᴏᴇꜱ *ɴᴏᴛ* ᴍᴀᴛᴛᴇʀ, ɪ ᴀᴍ ᴀʟᴡᴀʏꜱ ᴏɴ ʙᴜꜱʏ ᴏʀ ᴀᴡᴀʏ ʀᴇɢᴀʀᴅʟᴇꜱꜱ ᴏꜰ ᴡʜᴀᴛ ɪ'ᴍ ᴅᴏɪɴɢ, ᴅᴏɴ'ᴛ ᴛᴀᴋᴇ ᴛʜᴀᴛ ᴀꜱ ᴍʏ ɢᴇɴᴜɪɴᴇ ꜱᴛᴀᴛᴜꜱ !!** ☆
 okokokk bye !
+
+
+[![test](https://media-hosting.imagekit.io/6fc599fc24894d31/luffy2%3C3.jpg?Expires=1838355612&Key-Pair-Id=K2ZIVPTIP2VGHC&Signature=xX~bmp4Bo6cAbnQSoYRWSxeBAXRKDwEAQQ07IbEZfWj0d~yTDhoW9tUKoskmbuLcP-IDda8fi80aDC4jy~IiyVNTAR9amELy-eza48PWXt3aS9ssORDLkAmltd3UyipP09Q02-hPCz894ICD2EKMIiYIBfK9oGdIdCUXXaFXxOmKvGR1AAXpL4CC14W3lxGFzVDN5tfOOpBQd5pHiVFLumh3ZZ6zt1vfmRTNBPqITRkyi8Q2s-Cdfkjr-AJzGjYFCWut61vUhqN3HLbAJCMRCir96HoDjpJR2Qc8h3GgCVpjFfFfxZ~DB690YjuCft4DRhaKaC3AQeVAXIqTThDy7A__)]([https://www.youtube.com/watch?v=dQw4w9WgXcQ](https://www.youtube.com/watch?v=CWwqWg72kR4))
