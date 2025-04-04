@@ -1,9 +1,12 @@
+![Profile hits](https://komarev.com/ghpvc/?username=lxminaryy&color=ee6b53&style=for-the-badge&label=devil%20fruits%20eaten%20☆)
+
+
 ![GIF](https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExeGZpZzM0Y3JuNjN0ODhiNmVzYXV6YWNzOWNyYTNjM2IwbjQ3dTAzOCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/dC6jsApEdpOQENtcXx/giphy.gif)
 
 LUFFY LUFFY LUFFY LUFFY LUFFY LUFFY :3 !!
 
 ʏᴏᴜ ᴄᴀɴ ʀᴇᴀᴅ ɪꜰ ʏᴏᴜ'ᴅ ʟɪᴋᴇ !
-
+-------------------------------------------
 ︶꒦꒷☆꒷꒦︶
 
 𓆩 **ɪ ʟᴏᴠᴇ ᴏɴᴇ ᴘɪᴇᴄᴇ ᴠᴇʀʏ ᴠᴇʀʏ ᴠᴇʀʏᴇʀᴊ ᴍᴜᴄʜ!!!!!** ☆
