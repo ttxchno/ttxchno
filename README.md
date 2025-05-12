@@ -1,4 +1,4 @@
-![Profile hits](https://komarev.com/ghpvc/?username=lxminaryy&color=dd395c&style=for-the-badge&label=devil%20fruits%20eaten%20☆)
+![Profile hits](https://komarev.com/ghpvc/?username=lxminaryy&color=dd395c&style=for-the-badge&label=kingdom%20views%20☆)
 
 
 ![GIF](https://static.wikia.nocookie.net/cookierunkingdom/images/b/b8/Cookie0524-personal1.gif/revision/latest?cb=20220218010706)
