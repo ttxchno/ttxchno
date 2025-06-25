@@ -1,9 +1,7 @@
-![Profile hits](https://komarev.com/ghpvc/?username=lxminaryy&color=dd395c&style=for-the-badge&label=kingdom%20views%20☆)
+![Profile hits](https://komarev.com/ghpvc/?username=lxminaryy&color=679763&style=for-the-badge&label=plants%20grown%20☆)
 
 
-![GIF](https://static.wikia.nocookie.net/cookierunkingdom/images/b/b8/Cookie0524-personal1.gif/revision/latest?cb=20220218010706)
-
-raspberry cookiee !! :3
+![GIF](https://i.pinimg.com/originals/09/54/09/09540953f95ba2e8ade316d1e2026d3d.gif)
 
 ʏᴏᴜ ᴄᴀɴ ʀᴇᴀᴅ ɪꜰ ʏᴏᴜ'ᴅ ʟɪᴋᴇ !
 -------------------------------------------
@@ -24,4 +22,4 @@ raspberry cookiee !! :3
 **ɪɴ-ɢᴀᴍᴇ ꜱᴛᴀᴛᴜꜱ ᴅᴏᴇꜱ *ɴᴏᴛ* ᴍᴀᴛᴛᴇʀ, ɪ ᴀᴍ ᴀʟᴡᴀʏꜱ ᴏɴ ʙᴜꜱʏ ᴏʀ ᴀᴡᴀʏ ʀᴇɢᴀʀᴅʟᴇꜱꜱ ᴏꜰ ᴡʜᴀᴛ ɪ'ᴍ ᴅᴏɪɴɢ, ᴅᴏɴ'ᴛ ᴛᴀᴋᴇ ᴛʜᴀᴛ ᴀꜱ ᴍʏ ɢᴇɴᴜɪɴᴇ ꜱᴛᴀᴛᴜꜱ !!** ☆
 thats all ! ^_^
 
-![test](https://static.wikia.nocookie.net/cookierunkingdom/images/6/64/Cookie0524-personal2.gif/revision/latest?cb=20220218010708)
+![test](https://i.pinimg.com/originals/e7/be/02/e7be02ddd579c1230e96447af8e6eb00.gif)
