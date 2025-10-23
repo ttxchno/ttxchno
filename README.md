@@ -1,7 +1,7 @@
-![Profile hits](https://komarev.com/ghpvc/?username=lxminaryy&color=5acfd1&style=for-the-badge&label=souls%20taken%20☆)
+![Profile hits](https://komarev.com/ghpvc/?username=lxminaryy&color=371a28&style=for-the-badge&label=glyphs%20learned%20☆)
 
 
-![GIF](https://media.tenor.com/0CIKS3PTo4MAAAAM/saja-boys-kpop-demon-hunters.gif)
+![GIF](https://i.pinimg.com/originals/e2/7f/ec/e27fec55a48c9f3219823c050797d30f.gif)
 
 　　　　✧　　　　　　　　　　　　　.　　　　　　　　　　　　　　　　　　　　✧　　　　　　　　　　　　
 
@@ -19,7 +19,7 @@
 　　　　✧　　　𝟼 𝚢𝚛 𝚙𝚘𝚗𝚢𝚝𝚘𝚠𝚗 𝚙𝚕𝚊𝚢𝚎𝚛 !　　　　　　　　　　　　　⋆　　　　　　　
     
 
-　　　　　　　　　　　　　　　　　　　　✦　　　　　　　　　　　𝚋𝚊𝚋𝚢 𝚜𝚊𝚓𝚊𝚊𝚊𝚊𝚊!!　　　　　　　　　　
+　　　　　　　　　　　　　　　　　　　　✦　　　　　　　　　　　　　　　　　　
 
 　　　✩　　　　　　　　　　　　　　　　　　　　　　　　　　　　　.　　　　　　　　　　　
 
