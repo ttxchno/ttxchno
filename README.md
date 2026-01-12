@@ -1,27 +1,9 @@
 ![Profile hits](https://komarev.com/ghpvc/?username=lxminaryy&color=371a28&style=for-the-badge&label=glyphs%20learned%20☆)
 
 
-![GIF](https://i.pinimg.com/originals/e2/7f/ec/e27fec55a48c9f3219823c050797d30f.gif)
+<img src="https://camo.githubusercontent.com/8607d175995103dec0e28eb8ff8e40622c2df6111650c878b5abcec42bd7d2e3/68747470733a2f2f636f6e63726574652d7465616c2d70716975726f346663352e656467656f6e652e6170702f626c75725f65646765732e706e67" width="300" alt="GIF">
 
 　　　　✧　　　　　　　　　　　　　.　　　　　　　　　　　　　　　　　　　　✧　　　　　　　　　　　　
 
-　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　.
+6 yr ponytown player !
 
-　　　　⋆　　　　　　　　𝚝𝚎𝚌𝚑, 𝚕𝚞𝚖𝚒, 𝚘𝚛 𝚜𝚝𝚊𝚛𝚛𝚢.　　　　　˚　　　　　　　　　　　　　　　
-
-　　　　　　　✦　　　　　　　　　　　　　　　　𝚋𝚒𝚐𝚐𝚎𝚜𝚝 𝚖𝚘𝚛𝚜𝚎 𝚌𝚘𝚍𝚎 𝚎𝚗𝚝𝚑𝚞𝚜𝚒𝚊𝚜𝚝..　　　　　　　　　　　　
-       ✩　　　　　            
-                                                                                      ˚               ✦
-　　　　　　　　　　　　.　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　
-
-
-
-　　　　✧　　　𝟼 𝚢𝚛 𝚙𝚘𝚗𝚢𝚝𝚘𝚠𝚗 𝚙𝚕𝚊𝚢𝚎𝚛 !　　　　　　　　　　　　　⋆　　　　　　　
-    
-
-　　　　　　　　　　　　　　　　　　　　✦　　　　　　　　　　　　　　　　　　
-
-　　　✩　　　　　　　　　　　　　　　　　　　　　　　　　　　　　.　　　　　　　　　　　
-
-　　　　　　　　　　　　　　　　　　　　　　｡˚　　　　　　　　　　　　　　　　　　　　　
-　　　　　　　　　　　　　　　　　　
