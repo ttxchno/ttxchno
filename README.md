@@ -1,10 +1,29 @@
-![Profile hits](https://komarev.com/ghpvc/?username=lxminaryy&color=371a28&style=for-the-badge&label=glyphs%20learned%20☆)
+<div align="center">
 
+  <img src="https://komarev.com/ghpvc/?username=lxminaryy&color=ffbb61&style=for-the-badge&label=sillies%20☆" alt="Profile hits" />
 
-<img src="https://camo.githubusercontent.com/8607d175995103dec0e28eb8ff8e40622c2df6111650c878b5abcec42bd7d2e3/68747470733a2f2f636f6e63726574652d7465616c2d70716975726f346663352e656467656f6e652e6170702f626c75725f65646765732e706e67" width="300" alt="img">
+  <br><br>
 
-　　　　✧　　　　　　　　　　　　　.　　　　　　　　　　　　　　　　　　　　✧　　　　　　　　　　　　
+  <img width="300" src="https://github.com/user-attachments/assets/06e1a2c2-9ad0-4237-8bd1-1a6e540533e5" />
 
-6 yr ponytown player !
+  <br><br>
 
-fixing github!
+  <strong>𝙢𝙖𝙣𝙤𝙣𝙨 #1 𝙗𝙞𝙜𝙜𝙚𝙨𝙩 𝙛𝙖𝙣 ✧ ･ﾟ</strong>
+
+  <br><br>
+
+  <img src="https://i.pinimg.com/originals/2a/72/fb/2a72fb894b0c9864bdc9582f99406029.gif" width="500" />
+
+  <br><br>
+
+  <em>song i'm currently listening to ^_^ !!</em>
+
+  <br><br>
+
+  <img src="https://yt-music-readme-livid.vercel.app/" width="400"/>
+
+  <br><br>
+
+  <strong>6 yr ponytown player !</strong>
+
+</div>
