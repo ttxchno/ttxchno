@@ -17,9 +17,7 @@
   <br><br>
 
   <em>song i'm currently listening to ^_^ !!</em>
-
   <br><br>
-
   <img src="https://yt-music-readme-livid.vercel.app/" width="400"/>
 
   <br><br>
