@@ -1,27 +1,19 @@
-<div align="center">
+  <img width="650" src="https://i.postimg.cc/wMvXGM4H/IMG-0179.png" />
 
-  <img src="https://komarev.com/ghpvc/?username=lxminaryy&color=ffbb61&style=for-the-badge&label=sillies%20☆" alt="Profile hits" />
+<a href="https://www.last.fm/user/techxvv">
+  <img src="https://lastfm-profile-readme.vercel.app/api/techxvv?color=000000&textColor=F4EDFD&isRounded=true&displayName=true" width="300"/>
+</a>
+
+<div align="left">
+
+  <img src="https://komarev.com/ghpvc/?username=lxminaryy&color=b591d9&style=for-the-badge&label=sillies%20☆" alt="Profile hits" />
+  <br><br>
+  <img width="150" src="https://i.postimg.cc/bvDZGbGm/177408539469369200.png" />
 
   <br><br>
 
-  <img width="500" src="https://github.com/user-attachments/assets/06e1a2c2-9ad0-4237-8bd1-1a6e540533e5" />
+  <strong> empty for a bit ✧ ･ﾟ</strong>
 
   <br><br>
-
-  <strong>𝙢𝙖𝙣𝙤𝙣𝙨 #1 𝙗𝙞𝙜𝙜𝙚𝙨𝙩 𝙛𝙖𝙣 ✧ ･ﾟ</strong>
-
-  <br><br>
-
-  <img src="https://i.pinimg.com/originals/2a/72/fb/2a72fb894b0c9864bdc9582f99406029.gif" width="500" />
-
-  <br><br>
-
-  <em>song i'm currently listening to ^_^ !!</em>
-  <br><br>
-  <img src="https://yt-music-readme-livid.vercel.app/" width="400"/>
-
-  <br><br>
-
-  <strong>6 yr ponytown player !</strong>
 
 </div>
