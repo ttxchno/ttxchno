@@ -1,18 +1,17 @@
   <img width="650" src="https://i.postimg.cc/wMvXGM4H/IMG-0179.png" />
 
-<a href="https://www.last.fm/user/techxvv">
-  <img src="https://lastfm-profile-readme.vercel.app/api/techxvv?color=000000&textColor=F4EDFD&isRounded=true&displayName=true" width="300"/>
-</a>
+<img src="https://i.postimg.cc/tR6pWtNs/text.png" width="250" />
+
+![My scrobbles](https://lastfm-recently-played.vercel.app/api?user=techxvv&count=1&header_style=none)
 
 <div align="left">
 
-  <img src="https://komarev.com/ghpvc/?username=lxminaryy&color=b591d9&style=for-the-badge&label=sillies%20☆" alt="Profile hits" />
+<img src="https://komarev.com/ghpvc/?username=lxminaryy&label=hiya&style=plastic&color=b591d9" />
   <br><br>
   <img width="150" src="https://i.postimg.cc/bvDZGbGm/177408539469369200.png" />
-
   <br><br>
 
-  <strong> empty for a bit ✧ ･ﾟ</strong>
+<img src="https://cdn3.emoji.gg/emojis/3280-purplestar.gif" width="50"/> <strong> <img src="https://i.postimg.cc/Kj9sMWjJ/text-(1).png" width="250" /> ✧ ･ﾟ</strong>
 
   <br><br>
 
