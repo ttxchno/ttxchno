@@ -6,7 +6,7 @@
 
 <div align="left">
 
-<img src="https://komarev.com/ghpvc/?username=lxminaryy&label=hii&style=plastic&color=d1463f" />
+<img src="https://komarev.com/ghpvc/?username=lxminaryy&label=devil%20fruit%20users&style=plastic&color=d1463f" />
   <br><br>
   <img width="150" src="https://i.pinimg.com/originals/bf/e1/24/bfe124083f3acdfb46569a38a83b6bf2.gif" />
   <br><br>
