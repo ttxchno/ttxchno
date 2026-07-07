@@ -11,7 +11,7 @@
   <img width="150" src="https://i.pinimg.com/originals/bf/e1/24/bfe124083f3acdfb46569a38a83b6bf2.gif" />
   <br><br>
 
-<img src="https://i.pinimg.com/originals/60/2c/31/602c316fa0bc5b7e3e453a578e1d82e1.gif" width="50"/> <strong> <img src="https://i.postimg.cc/zv4jNn6j/text-(8).png" width="250" /> ✧ ･ﾟ</strong>
+<img src="https://i.pinimg.com/originals/60/2c/31/602c316fa0bc5b7e3e453a578e1d82e1.gif" width="50"/> <strong> <img src="https://i.postimg.cc/zv4jNn6j/text-(8).png"  width="200" /> ✧ ･ﾟ</strong>
 
   <br><br>
 
