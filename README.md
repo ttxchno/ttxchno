@@ -1,17 +1,17 @@
-  <img width="650" src="https://github.com/user-attachments/assets/fed89c1c-534b-42b0-a710-6c77193513df" />
+<img width="268" height="395" alt="tumblr_d80197b143995f44545b8deebb726614_073daa81_400" src="https://github.com/user-attachments/assets/77d980eb-52e6-4eec-954c-692746f28ae0" />
 
-<img src="https://i.postimg.cc/286vfRGy/text_(2).png" width="250" />
+<img src="https://i.postimg.cc/kGLcCxzv/text-(9).png" width="250" />
 
 ![My scrobbles](https://lastfm-recently-played.vercel.app/api?user=techxvv&count=1&header_style=none)
 
 <div align="left">
 
-<img src="https://komarev.com/ghpvc/?username=lxminaryy&label=devil%20fruit%20users&style=plastic&color=d1463f" />
+<img src="https://komarev.com/ghpvc/?username=lxminaryy&label=devil%20fruit%20users&style=plastic&color=767D6F" />
   <br><br>
   <img width="150" src="https://i.pinimg.com/originals/bf/e1/24/bfe124083f3acdfb46569a38a83b6bf2.gif" />
   <br><br>
 
-<img src="https://media1.giphy.com/media/v1.Y2lkPTZjMDliOTUyNnV5eDJnNGtoMWszYWE5aHJkdHZ0MXYweHR5aHgzMm5hdTJ2Y29pbCZlcD12MV9zdGlja2Vyc19zZWFyY2gmY3Q9cw/6KKKVerzrhjRrClNKt/giphy.gif" width="50"/> <strong> <img src="https://i.postimg.cc/3JRpH51d/text_(5).png" width="250" /> ✧ ･ﾟ</strong>
+<img src="https://i.pinimg.com/originals/60/2c/31/602c316fa0bc5b7e3e453a578e1d82e1.gif" width="50"/> <strong> <img src="https://i.postimg.cc/zv4jNn6j/text-(8).png" width="250" /> ✧ ･ﾟ</strong>
 
   <br><br>
 
